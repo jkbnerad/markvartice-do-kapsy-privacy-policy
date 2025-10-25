@@ -1,0 +1,1 @@
+# markvartice-do-kapsy-privacy-policy
